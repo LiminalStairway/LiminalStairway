@@ -11,6 +11,6 @@
 
 &nbsp;&nbsp;&nbsp; [Cure](https://github.com/cvremp3) &nbsp;&nbsp;&nbsp; [Lovesick](https://github.com/LovesickObsession) &nbsp;&nbsp;&nbsp; [Atabook](https://forevermortal.atabook.org/)
 
-<img src="https://github.com/SodanGum/SodanGum/blob/69714c96dcb89dece313976eb353ca33f3f48e0b/tumblr_d77cebbe98daa0b43d399e67ec3cfc07_e4854c3c_400.webp" />
+<img src="https://64.media.tumblr.com/0200a5a48335913e22eaeb59940a357c/tumblr_inline_n37h4cIuCk1qhwjx8.gifp" />
 </p>
 
