@@ -1,6 +1,6 @@
 <div align="center">
 
-## $${\color{blue}"Nobody \space will \space cure \space me \space unlike \space you }$$
+## $${\color{blue}"Nobody \space will \space cure \space me \space unlike \space you"}$$
 
 <img src="https://github.com/user-attachments/assets/7bb671aa-b25f-48fa-8801-4189b79e2076" />
 </p>
