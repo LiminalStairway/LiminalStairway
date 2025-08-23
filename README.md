@@ -2,10 +2,10 @@
 
 ## $${\color{blue}"Nobody \space will \space cure \space me \space unlike \space you }$$
 
-<img src="https://github.com/SodanGum/SodanGum/blob/a3a46a765d4581d44f25133f414297b380717275/tumblr_30d30ff084aaaf188c63c8c6a6453acb_ef62360c_500-removebg-preview.png" />
+<img src="https://github.com/user-attachments/assets/7bb671aa-b25f-48fa-8801-4189b79e2076" />
 </p>
 
-<img src="https://github.com/user-attachments/assets/7bb671aa-b25f-48fa-8801-4189b79e2076" />
+<img src=https://github.com/SodanGum/SodanGum/blob/69714c96dcb89dece313976eb353ca33f3f48e0b/tumblr_d77cebbe98daa0b43d399e67ec3cfc07_e4854c3c_400.webp" />
 </p>
 
 *Forever eternal*
