@@ -5,7 +5,6 @@
 <img src="https://github.com/user-attachments/assets/7bb671aa-b25f-48fa-8801-4189b79e2076" />
 </p>
 
-<img src="/>
 </p>
 
 *Forever eternal*
