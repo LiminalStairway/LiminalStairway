@@ -30,7 +30,7 @@ $\color{#BD7FD5}{\textbf{御手元の臓器にばかり意識をするから}}$
 $\color{#C998E7}{\textbf{躓いて大事な何かも壊しちゃうのさ}}$
 
   </p>
-MICHIKO AME MICHIKO AME MICHIKO AME
+CARL CARL CARL CARL CARL!! me ^_^ im a dmeon
 
   </p>
  Life is so amazing could you agree
