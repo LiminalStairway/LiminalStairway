@@ -5,12 +5,14 @@
 
 </p>
 
-**welcome to this wip account**
+**what the fuck is happening oh shi**
 
-&nbsp;&nbsp;&nbsp; [Ata](https://forevermortal.atabook.org/)
+&nbsp;&nbsp;&nbsp;[shes](https://github.com/yurivampire)
 
-<img src="https://github.com/user-attachments/assets/f25fadf8-9244-487c-8e45-8646cc9961c0" />
+<img src="https://github.com/user-attachments/assets/3df28f80-b599-475b-a634-003759333f88" />
 </p>
+
+ 
 
  $\color{#623183}{\textbf{隣の改札で行き詰まる人の群れ}}$
 
@@ -25,7 +27,6 @@ $\color{#BD7FD5}{\textbf{御手元の臓器にばかり意識をするから}}$
 
 $\color{#C998E7}{\textbf{躓いて大事な何かも壊しちゃうのさ}}$
 
-
   </p>
 あぁ！素晴らしい世界だ　なんて不平等で理不尽なんだ
 それを傍目でほくそ笑んでいる僕はきっと地獄行きなんだ
@@ -34,11 +35,7 @@ $\color{#C998E7}{\textbf{躓いて大事な何かも壊しちゃうのさ}}$
 ‘‘他人の不幸は蜜の味’’
 
   </p>
- Lovemail's are still wip. Working on it, though.
+ Life is so amazing could you agree
  </p>
-THANK YOU guys for supporting me while im not ok, i owe uou alot.
-
-&nbsp;&nbsp;&nbsp; [<3](https://github.com/yyoshidaa)
-&nbsp;&nbsp;&nbsp; [<3](https://github.com/yurivampire)
-&nbsp;&nbsp;&nbsp; [<3](https://github.com/Casyuce)
+ 
 
