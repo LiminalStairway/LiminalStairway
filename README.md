@@ -9,7 +9,7 @@ Me and my best friend literally.
 
  $\color{#753596}{\textbf{About the issue? You know about that. I did NOT harass you. maybe I did but i had no clue. You could've told me if you didn't like me using that.}}$
 
- $\color{#8D3EB1}{\textbf{i Admit, it was my FAULT for doing it first
+ $\color{#8D3EB1}{\textbf{i Admit, it was my FAULT for doing it first}}$
 
  $\color{#B56BCA}{\textbf{i was stupid, ok? I didn't mean it.}}$
 
