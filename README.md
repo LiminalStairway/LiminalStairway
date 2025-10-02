@@ -11,7 +11,7 @@
 
 <img src="https://github.com/user-attachments/assets/3df28f80-b599-475b-a634-003759333f88" />
 </p>
-
+me and my bsf literally
  
 
  $\color{#623183}{\textbf{隣の改札で行き詰まる人の群れ}}$
