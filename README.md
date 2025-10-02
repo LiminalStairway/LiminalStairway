@@ -3,8 +3,6 @@
 Me and my best friend literally. 
 
 
-
-</p>
  $\color{#C998E7}{\textbf{Let me clear some things up.}}$
 
  $\color{#BD7FD5}{\textbf{About the issue? You know about that. I did NOT harass you. maybe I did but i had no clue. You could've told me if you didn't like me using that.}}$
