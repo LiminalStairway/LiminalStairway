@@ -30,11 +30,7 @@ $\color{#BD7FD5}{\textbf{御手元の臓器にばかり意識をするから}}$
 $\color{#C998E7}{\textbf{躓いて大事な何かも壊しちゃうのさ}}$
 
   </p>
-あぁ！素晴らしい世界だ　なんて不平等で理不尽なんだ
-それを傍目でほくそ笑んでいる僕はきっと地獄行きなんだ
-さぁ！その手を伸ばして　助けを乞う姿を見せてくれ
-君が必死に掴もうとしているそれは夢幻さ
-‘‘他人の不幸は蜜の味’’
+MICHIKO AME MICHIKO AME MICHIKO AME
 
   </p>
  Life is so amazing could you agree
