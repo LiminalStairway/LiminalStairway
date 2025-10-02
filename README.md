@@ -9,8 +9,6 @@
   <a href=""</a>
 </ρ
    
-![☔️ michiko __ rainy girl - guchiry](https://github.com/user-attachments/assets/ca0c1aa9-02b3-4ca1-b57f-b8af48920f53)
-
 $\color{#623183}{\textbf{隣の改札で行き詰まる人の群れ}}$
 
 $\color{#753596}{\textbf{駆け込んで来たところで　目の前で旅立つ鉄の箱}}$
